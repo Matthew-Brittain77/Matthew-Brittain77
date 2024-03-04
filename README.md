@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Matthew-Brittain77
+- 👀 I’m interested in coding fun little games
+- 🌱 I’m currently learning Python games
+- 💞️ I’m looking to collaborate on fun games that will be used for a fun little project
+- 📫 How to reach me e-mail me at matthewbrittain77@gmail.com
+- 😄 Pronouns: He/Him
